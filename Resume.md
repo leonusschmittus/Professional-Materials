@@ -31,8 +31,8 @@ Clarks Summit, PA Jun 2019 - Sep 2019
 * **Abington Heights Highschool, 2018:** Chess Club founder, 3.96 GPA
 
 ## Notable Achievements
-(available for review on website)
-Music For Humans: a musical and visual story   
+(available for review on website)   
+Music For Humans: a musical and visual story    
 Symphony No.1: The Story of Scranton
 
 
