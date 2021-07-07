@@ -1,5 +1,5 @@
 # Ross Cohen <span style="font-family:Times New Roman; font-size:0.3em;"> &nbsp; &nbsp; &nbsp; rosscohen47@gmail.com &nbsp; &nbsp; &nbsp; (570) 690-6601 &nbsp; &nbsp; &nbsp; [WEBSITE](https://www.rosscohen1.com/)</span>
-[Download PDF](https://drive.google.com/file/d/1Bc50A_nypcESduWNfei4ykxq52lJI0he/view?usp=sharing)   
+[Download PDF](https://drive.google.com/file/d/1N5_KU9hTjfuJQ-KDKtg7yHO9dp5acCt4/view?usp=sharing)   
 ## Professional summary
 <span style="font-family:Times New Roman; font-size:0.8em;">Motivated and talented composer / sound designer / animator / music tech engineer with experience in multi media synchronization and installation art. Works well in collaborative projects and frequently inspires group members to achieve their highest potential both individually and as a whole. Interested in sound design and visual art for horror genre of film, TV, social media, promotion, rides, and exhibits.</span>
 ## Skills
